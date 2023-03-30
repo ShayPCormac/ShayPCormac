@@ -2,4 +2,4 @@
 - 👀 I’m interested in python
 - 🌱 I’m currently learning Ryan International School, Sec-31, Gurugram
 - 💞️ I’m looking to collaborate on Python
-- 📫 How to reach me ? through Discord-dynam.o_#5881 Instagram- dynam.o_ Twitter- slayr47
+- 📫 How to reach me ? through Discord-Slayer 47#3004 Instagram- slay.shiv Twitter- slayr47
